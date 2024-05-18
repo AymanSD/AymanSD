@@ -1,6 +1,5 @@
 
 ## Ayman Altoum
-I am a lecture in the Department of Surveying Engineering, [University of Khartoum](https://www.uofk.edu/)
 
 ### Hi there 👋
 
